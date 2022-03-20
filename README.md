@@ -16,6 +16,6 @@ Users should be able to:
 
 ## Got feedback for me?
 
-Feedbacks are always improve my technical knowledge, so you feel free to give me a feedback at my LinkedIn account (https://www.linkedin.com/in/omercicek97/) 🙌
+Feedbacks are always improve my technical knowledge, so feel free to give me a feedback through my LinkedIn account (https://www.linkedin.com/in/omercicek97/) 🙌
 
-**That'What I Did!** 🚀
+**That Is What I Did!** 🚀
